@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @NimashaKWeerasinghe
-- 📫 How to reach me nimashaweerasinghe@gmail.com
+- 📫 How to reach me nimashaweerasinghe2001@gmail.com
 
 <!---
 NimashaKWeerasinghe/NimashaKWeerasinghe is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
